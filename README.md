@@ -1,0 +1,1 @@
+# A-Jornada-do-Explorador-2c
